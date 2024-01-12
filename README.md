@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SmuleFlash
+- 👀 I’m interested in dancing, singing, electronic, media creation, fish keeping, dog lover, garderning
+- 🌱 I’m currently learning ESP32 
+- 💞️ I’m looking to collaborate on anything super creative
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: come to join me and push your creative to sky high
